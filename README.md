@@ -1,14 +1,14 @@
-# 海角免费VIP视频解析
+# 海角社区 免费VIP视频解析
 
 [最新免费解析地址 🚀: ak-sky.com](https://ak-sky.com/)
 
 
 支持站点:
 
-- 海角社区(hai-jiao)
-- 91Porn
-- 19JTV
-- JAV
+- 海角社区(hai-jiao)，去钻石 💎 免费看
+- 91Porn(国人的选择)
+- 19JTV(国产，韩国直播)
+- JAVhd(日本最大)
 - 蘑菇
 
 
